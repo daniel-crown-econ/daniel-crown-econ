@@ -8,12 +8,12 @@ layout: default
 
 
 
-**Email:** crown.17@osu.edu 
+**Email:** danielcrown54@gmail.com
 
 **Specialization:** Immigration, Regional Economics, Labor Economics, Rural Development
 
 
-**[CV](Crown_CV_2023.pdf)**
+**[CV](Crown_CV_2026.pdf)**
 
 
 **[Google Scholar](https://scholar.google.com/citations?user=BmpRN8sAAAAJ&hl=en)**
